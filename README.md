@@ -11,3 +11,5 @@ Gmail : zmcj20plusplus@gmail.com
 ### About my friends
 
 [Chief](https://github.com/1912188434)
+
+[Sean Cooper](https://github.com/seantcooper)
