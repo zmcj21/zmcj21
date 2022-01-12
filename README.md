@@ -4,6 +4,10 @@
 
 I'm developer of [Boxhead:Immortal](https://github.com/zmcj21/boxhead_dev), the spiritual sequel to Boxhead series by [Sean Cooper](https://www.seantcooper.com/).
 
+### About me
+
+I like hacking stuffs, creating retro/classic video games.
+
 ### Contact me
 
 Gmail : zmcj20plusplus@gmail.com
