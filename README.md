@@ -12,6 +12,8 @@ I like hacking stuffs, creating retro/classic video games.
 
 Gmail : zmcj20plusplus@gmail.com
 
+QQ : 1669247240
+
 ### About my friends
 
 [Chief](https://github.com/1912188434)
