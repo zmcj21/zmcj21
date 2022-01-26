@@ -18,7 +18,7 @@ Gmail : zmcj20plusplus@gmail.com
 
 QQ : 1669247240
 
-Discord : zmcj21#0991
+Discord : zmcj1#6488
 
 ### About my friends
 
