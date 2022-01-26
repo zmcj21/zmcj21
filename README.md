@@ -18,6 +18,8 @@ Gmail : zmcj20plusplus@gmail.com
 
 QQ : 1669247240
 
+Discord : zmcj21#0991
+
 ### About my friends
 
 [Chief](https://github.com/1912188434)
